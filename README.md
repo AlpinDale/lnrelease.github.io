@@ -78,7 +78,7 @@
 |Apr 02|[Long Story Short, I'm Living in the Mountains](https://j-novel.club/series/long-story-short-i-m-living-in-the-mountains#volume-5 "J-Novel Club")|5|J-Novel Club|🖥️|
 |Apr 03|[Peddler in Another World: I Can Go Back to My World Whenever I Want!](https://j-novel.club/series/peddler-in-another-world#volume-12 "J-Novel Club")|12|J-Novel Club|🖥️|
 |Apr 03|[The Tanaka Family Reincarnates](https://j-novel.club/series/the-tanaka-family-reincarnates#volume-6 "J-Novel Club")|6|J-Novel Club|🖥️|
-|Apr 07|[Fluffy Café in Another World](https://sevenseasentertainment.com/books/fluffy-cafe-in-another-world-light-novel-vol-1/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|🖥️📖|
+|Apr 07|[Fluffy Café in Another World](https://sevenseasentertainment.com/books/fluffy-cafe-in-another-world-light-novel-vol-1/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|📖|
 |Apr 07|[The Devil Princess](https://sevenseasentertainment.com/books/the-devil-princess-light-novel-vol-3/ "Seven Seas Entertainment")|3|Seven Seas Entertainment|🖥️📖|
 |Apr 07|[The Strange Adventure of a Broke Mercenary](https://sevenseasentertainment.com/books/the-strange-adventure-of-a-broke-mercenary-light-novel-vol-14/ "Seven Seas Entertainment")|14|Seven Seas Entertainment|🖥️📖|
 |Apr 13|[Ascendance of a Bookworm: Hannelore's Fifth Year at the Royal Academy](https://j-novel.club/series/ascendance-of-a-bookworm-hannelore-s-fifth-year-at-the-royal-academy#volume-2 "J-Novel Club")|2|J-Novel Club|🖥️|
