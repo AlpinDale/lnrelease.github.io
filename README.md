@@ -33,7 +33,7 @@
 |May 12|[The Executioner and Her Way of Life](https://yenpress.com/titles/9798855427448-the-executioner-and-her-way-of-life-vol-10 "Yen Press")|10|Yen Press|🖥️📖|
 |May 12|[The Princess of Convenient Plot Devices](https://yenpress.com/titles/9798855427387-the-princess-of-convenient-plot-devices-vol-7-light-novel "Yen Press")|7|Yen Press|🖥️📖|
 |May 12|[The Summer Hikaru Died](https://yenpress.com/titles/9798855434033-the-summer-hikaru-died-vol-2-light-novel "Yen Press")|2|Yen Press|🖥️📖|
-|May 12|[Venus Mission: I Was an Assassin-for-Hire Who Died, Now I'm Hunting Heroes in Another World](https://sevenseasentertainment.com/books/venus-mission-i-was-an-assassin-for-hire-who-died-now-im-hunting-heroes-in-another-world-light-novel-vol-1/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|🖥️📖|
+|May 12|[Venus Mission: I Was an Assassin-for-Hire Who Died, Now I'm Hunting Heroes in Another World](https://sevenseasentertainment.com/books/venus-mission-i-was-an-assassin-for-hire-who-died-now-im-hunting-heroes-in-another-world-light-novel-vol-1/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|📖|
 |May 12|[Villains Are Destined to Die](https://yenpress.com/titles/9798400903618-villains-are-destined-to-die-novel-vol-3 "Yen Press")|3|Yen Press|🖥️📖|
 |May 19|[A Tale of the Secret Saint](https://sevenseasentertainment.com/books/a-tale-of-the-secret-saint-light-novel-vol-10/ "Seven Seas Entertainment")|10|Seven Seas Entertainment|🖥️📖|
 |May 19|[She Professed Herself Pupil of the Wise Man](https://sevenseasentertainment.com/books/she-professed-herself-pupil-of-the-wise-man-light-novel-vol-16/ "Seven Seas Entertainment")|16|Seven Seas Entertainment|🖥️📖|
