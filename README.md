@@ -27,7 +27,7 @@
 |Jun 09|[Virgin Knight: I Became the Frontier Lord in a World Ruled by Women](https://sevenseasentertainment.com/books/virgin-knight-i-became-the-frontier-lord-in-a-world-ruled-by-women-light-novel-vol-3/ "Seven Seas Entertainment")|3|Seven Seas Entertainment|🖥️📖|
 |Jun 16|[Magical Buffs: The Support Caster is Stronger Than He Realized!](https://sevenseasentertainment.com/books/magical-buffs-the-support-caster-is-stronger-than-he-realized-light-novel-vol-2/ "Seven Seas Entertainment")|2|Seven Seas Entertainment|🖥️📖|
 |Jun 16|[Semantic Error](https://yenpress.com/titles/9798400904073-semantic-error-novel-vol-2 "Yen Press")|2|Yen Press|🖥️📖|
-|Jun 16|[The Confession Strategy](https://sevenseasentertainment.com/books/confession-strategy-light-novel/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|🖥️📖|
+|Jun 16|[The Confession Strategy](https://sevenseasentertainment.com/books/confession-strategy-light-novel/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|📖|
 |Jun 23|[I Like Villains, so I Reincarnated as One](https://sevenseasentertainment.com/books/i-like-villains-so-i-reincarnated-as-one-light-novel-vol-2/ "Seven Seas Entertainment")|2|Seven Seas Entertainment|🖥️📖|
 |Jun 23|[I'm the Evil Lord of an Intergalactic Empire!](https://sevenseasentertainment.com/books/im-the-evil-lord-of-an-intergalactic-empire-light-novel-vol-11/ "Seven Seas Entertainment")|11|Seven Seas Entertainment|🖥️📖|
 |Jun 30|[Al the Adventurer: That Magic Shouldn't Work!](https://sevenseasentertainment.com/books/al-the-adventurer-that-magic-shouldnt-work-light-novel-vol-1/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|🖥️|
