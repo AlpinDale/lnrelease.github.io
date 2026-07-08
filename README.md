@@ -2,38 +2,6 @@
 
 ## 2026
 
-### June
-
-|Date|Series|Volume|Publisher|Type|
-|:---:|---|:---:|---|:---:|
-|Jun 04|[How a Realist Hero Rebuilt the Kingdom: Short Story Chronicles](https://j-novel.club/series/how-a-realist-hero-rebuilt-the-kingdom#volume-21 "J-Novel Club")|1|J-Novel Club|🖥️|
-|Jun 09|[Before the Tutorial Starts: A Few Things I Can Do to Keep the Bosses Alive](https://yenpress.com/titles/9798855422535-before-the-tutorial-starts-a-few-things-i-can-do-to-keep-the-bosses-alive-vol-4 "Yen Press")|4|Yen Press|🖥️📖|
-|Jun 09|[Black Summoner](https://yenpress.com/titles/9781975392338-black-summoner-vol-7-light-novel "J-Novel Club")|7|J-Novel Club|📖|
-|Jun 09|[Catalog of Wonders](https://yenpress.com/titles/9781975393618-catalog-of-wonders-vol-5 "Yen Press")|5|Yen Press|🖥️📖|
-|Jun 09|[Days with My Stepsister](https://yenpress.com/titles/9798855408331-days-with-my-stepsister-vol-7-light-novel "Yen Press")|7|Yen Press|🖥️📖|
-|Jun 09|[Demon Lord 2099](https://yenpress.com/titles/9798855422009-demon-lord-2099-vol-5-light-novel "Yen Press")|5|Yen Press|🖥️📖|
-|Jun 09|[Heroine? Saint? No, I'm an All-Works Maid (And Proud of It)!](https://sevenseasentertainment.com/books/heroine-saint-no-im-an-all-works-maid-and-proud-of-it-light-novel-vol-6/ "Seven Seas Entertainment")|6|Seven Seas Entertainment|🖥️📖|
-|Jun 09|[Invaders of the Rokujouma!?](https://yenpress.com/titles/9781718308435-invaders-of-the-rokujouma-collector-s-edition-14-light-novel "J-Novel Club")|42-44|J-Novel Club|📖|
-|Jun 09|[Konosuba: God's Blessing on This Wonderful World! TRPG Advanced Rule Book](https://yenpress.com/titles/9798855419467-konosuba-god-s-blessing-on-this-wonderful-world-trpg-advanced-rule-book "Yen Press")|1|Yen Press|🖥️📖|
-|Jun 09|[Kusunoki's Garden of Gods](https://yenpress.com/titles/9798855408454-kusunoki-s-garden-of-gods-vol-4-light-novel "Yen Press")|4|Yen Press|🖥️📖|
-|Jun 09|[Melody of the Boundary](https://yenpress.com/titles/9798855428780-melody-of-the-boundary-vol-1 "Yen Press")|1|Yen Press|🖥️📖|
-|Jun 09|[My Quiet Blacksmith Life in Another World](https://yenpress.com/titles/9781718345218-my-quiet-blacksmith-life-in-another-world-volume-7-light-novel "J-Novel Club")|7|J-Novel Club|📖|
-|Jun 09|[New Game Plus After Defeating the Last Boss](https://yenpress.com/titles/9798855422047-new-game-plus-after-defeating-the-last-boss-vol-2-light-novel "Yen Press")|2|Yen Press|🖥️📖|
-|Jun 09|[Once Upon a Witch's Death](https://yenpress.com/titles/9798855427936-once-upon-a-witch-s-death-vol-3 "Yen Press")|3|Yen Press|🖥️📖|
-|Jun 09|[Reborn to Master the Blade: From Hero-King to Extraordinary Squire?](https://yenpress.com/titles/9798855403411-reborn-to-master-the-blade-from-hero-king-to-extraordinary-squire-vol-9-light-novel "J-Novel Club")|9|J-Novel Club|📖|
-|Jun 09|[Re:ZERO -Starting Life in Another World- Short Story Collection](https://yenpress.com/titles/9781975393304-re-starting-life-in-another-world-short-story-collection-vol-5-light-novel "Yen Press")|5|Yen Press|🖥️📖|
-|Jun 09|[The Magical Revolution of the Reincarnated Princess and the Genius Young Lady](https://yenpress.com/titles/9798855418958-the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady-vol-9-novel "Yen Press")|9|Yen Press|🖥️📖|
-|Jun 09|[The Only Thing I'd Do in a No-Boys-Allowed Game World](https://yenpress.com/titles/9798855424348-the-only-thing-i-d-do-in-a-no-boys-allowed-game-world-vol-4-novel "Yen Press")|4|Yen Press|🖥️📖|
-|Jun 09|[Virgin Knight: I Became the Frontier Lord in a World Ruled by Women](https://sevenseasentertainment.com/books/virgin-knight-i-became-the-frontier-lord-in-a-world-ruled-by-women-light-novel-vol-3/ "Seven Seas Entertainment")|3|Seven Seas Entertainment|🖥️📖|
-|Jun 16|[Magical Buffs: The Support Caster is Stronger Than He Realized!](https://sevenseasentertainment.com/books/magical-buffs-the-support-caster-is-stronger-than-he-realized-light-novel-vol-2/ "Seven Seas Entertainment")|2|Seven Seas Entertainment|🖥️📖|
-|Jun 16|[Semantic Error](https://yenpress.com/titles/9798400904073-semantic-error-novel-vol-2 "Yen Press")|2|Yen Press|🖥️📖|
-|Jun 16|[The Confession Strategy](https://sevenseasentertainment.com/books/confession-strategy-light-novel/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|📖|
-|Jun 23|[I Like Villains, so I Reincarnated as One](https://sevenseasentertainment.com/books/i-like-villains-so-i-reincarnated-as-one-light-novel-vol-2/ "Seven Seas Entertainment")|2|Seven Seas Entertainment|🖥️📖|
-|Jun 23|[I'm the Evil Lord of an Intergalactic Empire!](https://sevenseasentertainment.com/books/im-the-evil-lord-of-an-intergalactic-empire-light-novel-vol-11/ "Seven Seas Entertainment")|11|Seven Seas Entertainment|🖥️📖|
-|Jun 30|[Al the Adventurer: That Magic Shouldn't Work!](https://sevenseasentertainment.com/books/al-the-adventurer-that-magic-shouldnt-work-light-novel-vol-1/ "Seven Seas Entertainment")|1|Seven Seas Entertainment|🖥️|
-|Jun 30|[Mushoku Tensei: Jobless Reincarnation](https://sevenseasentertainment.com/books/mushoku-tensei-jobless-reincarnation-deluxe-edition-2-light-novel-vol-4-6-hardcover-omnibus/ "Seven Seas Entertainment")|4-6|Seven Seas Entertainment|📖|
-|Jun 30|[ROLL OVER AND DIE: I Will Fight for an Ordinary Life with My Love and Cursed Sword!](https://sevenseasentertainment.com/books/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword-light-novel-vol-6/ "Seven Seas Entertainment")|6|Seven Seas Entertainment|🖥️📖|
-
 ### July
 
 |Date|Series|Volume|Publisher|Type|
